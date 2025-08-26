@@ -2,6 +2,6 @@
 
 1. Stefanno Ismael Rossel Pin - N00364010
 2. Franco Arango Miranda - N00410340
-3.
+3. AngelTorres Condori - N00461557
 4.
 5.
